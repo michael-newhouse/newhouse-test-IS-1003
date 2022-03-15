@@ -1,1 +1,1 @@
-seize the day
+carpe diem
